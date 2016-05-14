@@ -39,3 +39,13 @@ None; or everywhere!
 ## How to apply
 
 Check out our [job opportunities](http://www.webikon.sk/pracovne-pozicie/) and/or send an email to jobs@webikon.sk.
+
+## Position of Interest
+Unclear
+
+## Status of Application
+None made
+
+## Todo
+
+
