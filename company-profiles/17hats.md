@@ -27,3 +27,11 @@ Not known
 ## How to apply
 
 Email buford@17hats.com with github and/or CV
+
+## Position of Interest
+Unclear what positions if any are open.
+
+## Status of Application
+None made
+
+## Todo
